@@ -1,4 +1,5 @@
 # Handwerk & Corona
+Everything is work in Progess \_o.O_/ :]
 
 # Where want to go?
 Our Vision is
@@ -13,7 +14,7 @@ Together.
 We create a stream of all problems to a point and there we create solutions together. 
 With every iteration the solution will become better.
 
-
+/////////// \\\\\\\\\
 
 # Wohin geht es?
 Unsere Vision ist
